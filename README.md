@@ -1,1 +1,0 @@
-# KENTECH_AR
